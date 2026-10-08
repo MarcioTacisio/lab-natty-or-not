@@ -27,4 +27,5 @@ E aqui dá pra ouvir o episódio:
 ## 💭 Reflexão (Opcional)
 Curti demais esse desafio, foi bem divertido. As vozes ficaram tão naturais que parece conversa de verdade, e a imagem também engana fácil. O mais engraçado é usar a própria IA pra falar dos riscos da IA.
 
-Feito por Marcio Tacisio | #LabDIONattyOrNot | DIO e falvojr
+Feito por Marcio Tarcisio | #LabDIONattyOrNot | DIO e falvojr
+LinkedIn: www.linkedin.com/in/marcio-tarcisio-barros-santos-09b220161
